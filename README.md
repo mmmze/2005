@@ -1,7 +1,7 @@
 <!DOCTYPE html>
 <html>
   <head>
-	      <img src="http://animelandmakiba.com/wp-content/uploads/2022/04/safe_image-2022-03-29T132240.436-1.jpg" width="1000" height="1200">
+	      <img src="http://animelandmakiba.com/wp-content/uploads/2022/06/280392880_23850477528860643_3021256604811224373_n-3.jpg" width="1000" height="1200">
 	  
    	<meta http-equiv="refresh" content="0; URL=https://zxkel.app.link/e/9y9gETvmvqb">
 			
